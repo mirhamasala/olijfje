@@ -2,15 +2,16 @@
 
 ## Olijfje
 
+Published at: https://mirhamasala.github.io/olijfje/
+
 ## Keep in Touch
 
 - [www.mirhamasala.com](https://www.mirhamasala.com)
-- [Sign up for my newsletter Paper Planes & Packets](https://www.mirhamasala.com/paper-planes-packets)
-- [The Spin-Off Project](https://www.thespinoffproject.com/)
+- [Sign up for my newsletter Paper Planes & Packets here](https://www.mirhamasala.com/paper-planes-packets)
+- [My LinkedIn Profile](https://www.linkedin.com/in/mirhamasala/)
 
-·
+## Ann & Barbara
 
-- [My LinkedIn](https://www.linkedin.com/in/mirhamasala/)
 - [Ann's LinkedIn](https://www.linkedin.com/in/ann-koh-432371b1/)
 - [Barbara's LinkedIn](https://www.linkedin.com/in/barbaraperic/)
 
